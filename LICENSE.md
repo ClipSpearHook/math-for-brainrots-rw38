@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with math for brainrots elite Scripts, the #1 Script. Includes no clip and auto-upgrade for
 
 
 
